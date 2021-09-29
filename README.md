@@ -21,7 +21,7 @@
 
 ## Links
 
-- 리뉴얼 Link : [**View**](https://xururuca9797.github.io/eggslut/)
+- 리뉴얼 Link : [**View**](https://yunyurib.github.io/eggslut/)
 - 기존 Link : [**View**](http://eggslut.co.kr/)
 
 <p>
